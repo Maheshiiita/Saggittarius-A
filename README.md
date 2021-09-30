@@ -1,4 +1,5 @@
-### Hi there 👋! I am Mahesh Kumar
+### Hi there 👋! I am Naina Kumari
+A pre-final year student at IIITA.
 A pre-final year student at IIITA.
 
 ## I'm a Developer and Student!!
